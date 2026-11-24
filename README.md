@@ -1,0 +1,1 @@
+# kultaharjan-ratsastuskoulu-paivitetty
